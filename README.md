@@ -1,1 +1,1 @@
-# Amazon-sales-Analytics
+AMAZON BUSINESS, SALES ANALYTICS and DISCOUNT TRENDS
